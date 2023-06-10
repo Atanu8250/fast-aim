@@ -12,13 +12,13 @@ Some Glimps of Our Gaming Project :
 
 ## Our Team Members
 
-- Subha Mukherjee (My Linkedin profile :- https://www.linkedin.com/in/subha-mukherjee-652a551ba/)
+- Subha Mukherjee  [Linkedin](https://www.linkedin.com/in/subha-mukherjee-652a551ba/)
 
-- Suneet Panigrahi (My Linkedin profile :- https://www.linkedin.com/in/suneetpanigrahi25/)
+- Suneet Panigrahi [Linkedin](https://www.linkedin.com/in/suneetpanigrahi25/)
 
-- Abhishek Jha (My Linkedin profile :-https://www.linkedin.com/in/abhishek-jha-430055231/)
+- Abhishek Jha [Linkedin](https://www.linkedin.com/in/abhishek-jha-430055231/)
 
--Atanu Karmakar (My Linkedin profile :- https://www.linkedin.com/in/atanu-karmakar-7ab110227/)
+- Atanu Karmakar [Linkedin](https://www.linkedin.com/in/atanu-karmakar-7ab110227/)
 <br/>
 
 <br/>
